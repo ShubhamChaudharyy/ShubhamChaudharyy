@@ -5,5 +5,5 @@
 - I’m looking to explore the field of Study (Machine Learning).
 - I also participate in Competitive Coding Competitions
 - 📫 How to reach me:  ✉️ **chd.nonu26@gmail.com**  👔 **https://www.linkedin.com/in/shubham-choudhary-5b276a146/**
-- ⚡ Fun fact: **JATAAYU is the strongest Avenger...Not Falcon or Captain America**
+- ⚡ Fun fact: **JATAAYU is the strongest Avenger**
 
